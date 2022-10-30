@@ -8,3 +8,5 @@
 Kavex71/Kavex71 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+para que es esto. en verdad necesito mucha ayuda no se que hacer son muchos garabatos que no entiendo es como si tratara de decifrar los georiglificos de los Egipcios![IMG20221029225526](https://user-images.githubusercontent.com/116933799/198864948-d77307b5-59f3-4870-914c-bdf36080b895.jpg)
+
